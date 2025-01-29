@@ -1,1 +1,1 @@
-# Strona
+# Don't readme xd
